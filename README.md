@@ -6,5 +6,3 @@
 !! I am not accountable for what ever you use this on !!
 
 
-
-# https://cdn.discordapp.com/attachments/838396057515851777/874648283954442290/unknown.png
