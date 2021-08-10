@@ -7,5 +7,3 @@
 
 
 
-
-# https://cdn.discordapp.com/attachments/838396057515851777/874648283954442290/unknown.png
